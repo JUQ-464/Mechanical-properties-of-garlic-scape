@@ -1,0 +1,1 @@
+These documents provide the mechanical parameters of garlic scapes and pseudostems, and the comparison of these mechanical parameters is used to clarify the separation mechanism of garlic scapes from pseudostems during mechanical harvesting.
